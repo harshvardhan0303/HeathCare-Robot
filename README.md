@@ -5,4 +5,4 @@ It is an  Anti-Covid Proximity based Ultraviolet Disinfectant .
 
 [Link for HealthCare Robot Video](https://youtu.be/WzFCN-NWQRs)
 
-[Link for my Discord](Harsh Vardhan singh#8496)
+Username of my discord channel - Harsh Vardhan singh#8496
